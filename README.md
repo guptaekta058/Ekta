@@ -1,3 +1,3 @@
 # Ekta
 practice
-my name is Ekta 
+my name is Ekta(GUpta)
